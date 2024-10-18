@@ -4,4 +4,8 @@ Shop With Donate: Buy any product, donate 2% or 3% to NGOs sellers contribute to
 
 ![icons8-youtube-48](https://github.com/user-attachments/assets/1beefdd6-fa17-49c9-bde7-e8f30f539b96)
 
+![icons8-twitterx-48](https://github.com/user-attachments/assets/f1eeb865-3d23-407a-9a2b-d76b4e85c6dd)
+
+
+
 
